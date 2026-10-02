@@ -1,0 +1,1 @@
+Esami svolti da me.
